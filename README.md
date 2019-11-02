@@ -3,4 +3,4 @@ just another repository
 
 
 Got to save PVT Ninja 
-He is getting paid to well in mixer
+He is getting paid too well in mixer
